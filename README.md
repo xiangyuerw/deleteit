@@ -1,2 +1,2 @@
-# magiccode
-Learning and sharing magic things
+# delete it
+
